@@ -8,10 +8,10 @@ I master Spanish, English, Galician and Portuguese so if you talk any of those w
 Some hobbies that I have can be playing videogames or working out.
 How to reach me: hgonsou@gmail.com or mental telepathy as well.
 
-🐍🐍 walking by the wall
+   🐍 walking by the wall
       the shadows will not fall
       is silently ignored
       discouraged by the noise
       living without choice
-      is a life without a voice 🐍🐍
+      is a life without a voice 🐍
   
